@@ -1,1 +1,0 @@
-# Teoria-de-Computaci-n-1
